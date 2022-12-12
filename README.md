@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **janabajab.234539@bacoor.sti.edu.ph**
 
-- ⚡ Fun fact! **I'm very hate you.**
+- ⚡ Fun fact! [Hobbies]: **I like watching anime's and social media video's. I like reading manga's and manhwa's. I like playing games LoL, Genshin Impact, Overwatch, and Valorant**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
